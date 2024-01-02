@@ -1,6 +1,7 @@
 <h1><p align="center"> MEZZE MANICHE RIGATE N.122 ALLA CARBONARA </p> </h1>
 
 ![immagine_carbonara](https://blog.giallozafferano.it/albe/wp-content/uploads/2020/08/15FA1142-B5FA-410C-878B-2B8745B85F64_001-960x949.jpg) 
+
 - TEMPO
     - 20 minuti
 - PERSONE
