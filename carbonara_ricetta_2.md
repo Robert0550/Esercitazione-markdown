@@ -1,5 +1,5 @@
 # Mezze Maniche Rigate N. 122 alla Carbonara
-
+![immagine_carbonara](https://blog.giallozafferano.it/albe/wp-content/uploads/2020/08/15FA1142-B5FA-410C-878B-2B8745B85F64_001-960x949.jpg) 
 ## Ingredienti:
 - 400 g di Mezze Maniche Rigate Voiello n. 122
 - 200 g di Pecorino
