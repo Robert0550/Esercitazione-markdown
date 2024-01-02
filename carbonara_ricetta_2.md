@@ -1,7 +1,13 @@
 <h1><p align="center"> MEZZE MANICHE RIGATE N.122 ALLA CARBONARA </p> </h1>
 
 ![immagine_carbonara](https://blog.giallozafferano.it/albe/wp-content/uploads/2020/08/15FA1142-B5FA-410C-878B-2B8745B85F64_001-960x949.jpg) 
-
+- TEMPO
+    - 20 minuti
+- PERSONE
+    - 4 PERSONE
+- DIFFICOLTÁ
+    - FACILE
+      
 <h1><p align="center"> Ingredienti </p> </h1>
 
 - 400 g di Mezze Maniche Rigate Voiello n. 122
@@ -9,9 +15,11 @@
 - 5 tuorli d'uovo
 - 280 g di guanciale
 - Pepe nero q.b.
-  
+
 [VAI ALLA RICETTA ORIGINALE](https://www.voiello.it/ricette/mezze-maniche-rigate-n-122-alla-carbonara/)
+
 <h1><p align="center"> Preparazione </p> </h1>
+
 1. Eliminare la cotenna del guanciale e tagliarlo a listarelle spesse circa mezzo centimetro. Lasciare sfrigolare in una padella a fuoco moderato finché la parte grassa diventa trasparente. Versare il grasso in una ciotola e rimettere il guanciale sul fuoco per renderlo croccante. Spegnere la fiamma e mettere da parte il guanciale.
 
 2. In una scodella amalgamare brevemente con una spatola i tuorli, unire il pepe e il pecorino (tenendone da parte due cucchiai). Aggiungere 2 cucchiai di grasso del guanciale per rendere il composto vellutato.
