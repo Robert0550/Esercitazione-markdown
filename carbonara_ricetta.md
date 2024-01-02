@@ -7,10 +7,10 @@
 #### 280 g guanciale
 #### Pepe nero q.b.
 [TORNA ALLA RICETTA] (https://www.voiello.it/ricette/)
-#MEZZE
-#MANICHE
-#RIGATE N.
-#122 ALLA
-#CARBONARA
+# MEZZE
+# MANICHE
+# RIGATE N.
+# 122 ALLA
+# CARBONARA
 
 
