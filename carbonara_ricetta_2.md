@@ -18,7 +18,7 @@
 - Pepe nero q.b.
 
 [VAI ALLA RICETTA ORIGINALE](https://www.voiello.it/ricette/mezze-maniche-rigate-n-122-alla-carbonara/)
-
+#### Quando la più famosa ricetta romana incontra la pasta più autenticamente napoletana, è impossibile resistere alla tentazione.
 <h1><p align="center"> Preparazione </p> </h1>
 
 1. Eliminare la cotenna del guanciale e tagliarlo a listarelle spesse circa mezzo centimetro. Lasciare sfrigolare in una padella a fuoco moderato finché la parte grassa diventa trasparente. Versare il grasso in una ciotola e rimettere il guanciale sul fuoco per renderlo croccante. Spegnere la fiamma e mettere da parte il guanciale.
@@ -29,6 +29,6 @@
 
 4. Versare le Mezze Maniche Rigate nella padella del guanciale. Unire la crema di tuorli e pecorino insieme a un mestolo scarso d'acqua di cottura. Mescolare per amalgamare il tutto fino a raggiungere una consistenza cremosa.
 
-5. Aggiungere una spolverata di pecorino e servire.
+5. Aggiungere una spolverata di pecorino e servire in tavola .
 
 Buon appetito!
