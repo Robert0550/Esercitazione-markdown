@@ -6,7 +6,7 @@
 - 5 tuorli d'uovo
 - 280 g di guanciale
 - Pepe nero q.b.
-
+[TORNA ALLA RICETTA](https://www.voiello.it/ricette/mezze-maniche-rigate-n-122-alla-carbonara/)
 ## Preparazione:
 1. Eliminare la cotenna del guanciale e tagliarlo a listarelle spesse circa mezzo centimetro. Lasciare sfrigolare in una padella a fuoco moderato finché la parte grassa diventa trasparente. Versare il grasso in una ciotola e rimettere il guanciale sul fuoco per renderlo croccante. Spegnere la fiamma e mettere da parte il guanciale.
 
